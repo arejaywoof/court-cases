@@ -1,0 +1,3 @@
+# 2021.02.10
+
+ORDER RE MOTION OF DEFENDANT TO WITHDRAW SECOND MOTION TO DISMISS 23 AND TO COMPEL ARBITRATION [ECF No. 25] by Judge John W. Holcomb. In view of that background, the Court will construe Heredia's instant Motion as a L.R. 7-16 notice of withdrawal of his Second Motion to Dismiss. Heredia's Second Motion to Dismiss is hereby deemed WITHDRAWN. In his Motion, Heredia also seeks to compel arbitration. The parties are DIRECTED to file their respective response and reply papers pertaining to that requested relief in accordance with the Local Rules. All counsel are also DIRECTED to review thoroughly and hereafter to comply assiduously with this Court's Local Rules. IT IS SO ORDERED. See order for details. (lom) (Entered: 02/10/2021)
