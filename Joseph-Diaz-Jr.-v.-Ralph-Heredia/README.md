@@ -1,3 +1,10 @@
+# UNITED STATES DISTRICT COURT
+# CENTRAL DISTRICT OF CALIFORNIA (Eastern Division - Riverside)
+# CIVIL DOCKET FOR CASE #: 5:20-cv-02332-JWH-KK ##
+> Joseph Diaz Jr. v Ralph Heredia, John Doe Esq, Jane Doe 1-20
+
+
+
 | Date Filed        | #           | Docket Text  |
 | ------------- |:-------------:| -----|
 | 11/09/2020  | 1 | **NOTICE OF REMOVA**L from Superior Court of California, San Bernardino, case number CIVDS2021913 Receipt No: ACACDC-28914429 - Fee: $400, filed by Defendant Rafael Tarango Heredia. (Attachments: # 1 Civil Cover Sheet Civil Cover Sheet) (Attorney Rajan Olarita Dhungana added to party Rafael Tarango Heredia(pty:dft))(Dhungana, Rajan) (Entered: 11/09/2020) |
