@@ -1,6 +1,7 @@
-# UNITED STATES DISTRICT COURT
-# CENTRAL DISTRICT OF CALIFORNIA (Eastern Division - Riverside)
-# CIVIL DOCKET FOR CASE #: 5:20-cv-02332-JWH-KK ##
+
+UNITED STATES DISTRICT COURT
+CENTRAL DISTRICT OF CALIFORNIA (Eastern Division - Riverside)
+CIVIL DOCKET FOR CASE #: 5:20-cv-02332-JWH-KK ##
 > Joseph Diaz Jr. v Ralph Heredia, John Doe Esq, Jane Doe 1-20
 
 
