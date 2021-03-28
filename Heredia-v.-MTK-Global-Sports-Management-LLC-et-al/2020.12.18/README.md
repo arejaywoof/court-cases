@@ -1,0 +1,3 @@
+# 2020.12.18
+
+1 : **COMPLAINT** Receipt No: ACACDC-29610489 - Fee: $402, filed by plaintiff Moses Heredia, Heredia Boxing Management, Inc.. (Attachments: # 1 Civil Cover Sheet CV-71 Civil Cover Sheet) (Attorney Rajan Olarita Dhungana added to party Moses Heredia(pty:pla), Attorney Rajan Olarita Dhungana added to party Heredia Boxing Management, Inc.(pty:pla))(Dhungana, Rajan) (Entered: 12/18/2020)

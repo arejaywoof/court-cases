@@ -1,0 +1,3 @@
+# 2020.12.26
+
+9 : **APPLICATION** of Non-Resident Attorney Eric S. Montalvo to Appear Pro Hac Vice on behalf of Plaintiffs Moses Heredia, Heredia Boxing Management, Inc. (Pro Hac Vice Fee - $500 Fee Paid, Receipt No. ACACDC-29726158) filed by Plaintiff Moses Heredia, Heredia Boxing Management, Inc.. (Attachments: # 1 Proposed Order Proposed Order, # 2 Exhibit Certificate of Good Standing - Washington DC, # 3 Exhibit Certificate of Good Standing - New Jersey, # 4 Exhibit Certificate of Good Standing - Pennsylvania) (Dhungana, Rajan) (Entered: 12/26/2020)

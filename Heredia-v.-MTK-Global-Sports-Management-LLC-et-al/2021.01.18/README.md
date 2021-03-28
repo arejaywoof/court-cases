@@ -1,0 +1,5 @@
+# 2021.01.18
+
+20 : First **AMENDED COMPLAINT** against Defendant Paul D Gibson, Daniel Kinahan, MTK Global Sports Management, LLC, VGC, LLP, Golden Boy Promotions, Inc. amending Complaint (Attorney Civil Case Opening), 1 , filed by Plaintiff Moses Heredia, Heredia Boxing Management, Inc. (Attachments: # 1 Civil Cover Sheet cv-71 Amended Civil Cover Sheet)(Dhungana, Rajan) (Entered: 01/18/2021)
+
+21 : Request for Clerk to Issue Summons on Amended Complaint/Petition, 20 filed by Plaintiff Moses Heredia, Heredia Boxing Management, Inc.. (Attachments: # 1 Supplement Summons for MTK Global, # 2 Supplement Summons for MTK UK, # 3 Supplement Summons for Daniel Kinahan, # 4 Supplement Summons for Golden Boy Promotions, # 5 Supplement Summons for Paul D. Gibson)(Dhungana, Rajan) (Entered: 01/18/2021)

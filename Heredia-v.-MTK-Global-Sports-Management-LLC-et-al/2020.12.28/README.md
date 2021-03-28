@@ -1,0 +1,5 @@
+# 2020.12.28
+
+10 : Request for Clerk to Issue Summons on Complaint (Attorney Civil Case Opening), 1 filed by Plaintiff Moses Heredia, Heredia Boxing Management, Inc.. (Attachments: # 1 Supplement Summons for MTK UK, # 2 Supplement Summons for Golden Boy, # 3 Supplement Summons for VGC, # 4 Supplement Summons for Daniel Kinahan, # 5 Supplement Summons for Paul Gibson)(Dhungana, Rajan) (Entered: 12/28/2020)
+
+11: **NOTICE** of Deficiency in Electronically Filed Pro Hac Vice Application RE: APPLICATION of Non-Resident Attorney Eric S. Montalvo to Appear Pro Hac Vice on behalf of Plaintiffs Moses Heredia, Heredia Boxing Management, Inc. (Pro Hac Vice Fee - $500 Fee Paid, Receipt No. ACACDC-29726158) 9 . The following error(s) was/were found: Local Rule 83-2.1.3.4 Local counsel does not maintain an office within the District. (Thrasher, Lupe) (Entered: 12/28/2020)

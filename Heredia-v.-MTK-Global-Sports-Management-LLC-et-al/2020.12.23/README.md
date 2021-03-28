@@ -1,0 +1,3 @@
+# 2020.12.23
+
+8 : **ORDER RE TRANSFER PURSUANT TO GENERAL ORDER** 19-03-Related Case- filed. Related Case No: 5:20-cv-02332-JWH-KKx. Case transferred from Judge Fernando M. Olguin and Magistrate Judge Sheri Pym to Judge John W. Holcomb and Magistrate Judge Kenly Kiya Kato for all further proceedings. The case number will now reflect the initials of the transferee Judge 5:20-cv-02618-JWH-KKx. Signed by Judge John W. Holcomb (aco) (Entered: 12/23/2020)
