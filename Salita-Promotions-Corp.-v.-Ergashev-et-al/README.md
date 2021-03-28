@@ -1,3 +1,14 @@
+### Salita Promotions Corp. v. Ergashev
+
+* CASE #: 2:20-cv-12547-LJM-EAS
+* Date filed: 09/16/2020
+* Assigned to: Judge Laurie J. Michelson
+* Jury Demand: None
+* Demand: $75,000
+* Nature of Suit: 190 Contract: Other
+* Jurisdiction: Diversity
+* Cause: No cause code entered
+
 | Docket # | Date |Docket Text |
 | ----- |:------:| ----- |
 | 1 | 09/16/2020 | Complaint / Docket Text: COMPLAINT (Verified) filed by Salita Promotions Corp. against Oleg Bogdanov, Shohjahon Ergashev. Plaintiff requests summons issued. Receipt No: AMIEDC-8050980 - Fee: $ 400. County of 1st Plaintiff: Kings - County Where Action Arose: Wayne - County of 1st Defendant: USA. [Previously dismissed case: No] [Possible companion case(s): None] (Attachments: # (1) Exhibit A - Agreement) (Murphy, Charles) |
