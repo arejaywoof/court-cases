@@ -1,10 +1,11 @@
+### Joseph Diaz Jr. v Ralph Heredia, John Doe Esq, Jane Doe 1-20
 
-UNITED STATES DISTRICT COURT
-CENTRAL DISTRICT OF CALIFORNIA (Eastern Division - Riverside)
-CIVIL DOCKET FOR CASE #: 5:20-cv-02332-JWH-KK ##
-> Joseph Diaz Jr. v Ralph Heredia, John Doe Esq, Jane Doe 1-20
-
-
+* Date Filed: 11/09/2020
+* Assigned to: Judge John W. Holcomb
+* Jury Demand: Defendant
+* Nature of Suit: 890 Other Statutory Actions
+* Jurisdiction: Federal Question
+* Cause: Civil Miscellaneous Case
 
 | Date Filed        | #           | Docket Text  |
 | ------------- |:-------------:| -----|
