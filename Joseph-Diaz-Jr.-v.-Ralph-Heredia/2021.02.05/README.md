@@ -1,3 +1,0 @@
-# 2021.02.05
-
-NOTICE OF MOTION AND MOTION to Withdraw Second NOTICE OF MOTION AND MOTION to Dismiss Case 23 , NOTICE OF MOTION AND MOTION to Compel Arbitration filed by Defendant Ralph Heredia. Motion set for hearing on 3/12/2021 at 09:00 AM before Judge John W. Holcomb. (Attachments: # 1 Memorandum DEFENDANTS MEMORANDUM OF POINTS AND AUTHORITIES SUPPORTING MOTION TO WITHDRAW MOTION TO DISMISS (ECF NO. 23) AND MOTION TO COMPEL ARBITRATION AND/OR STAY THE PROCEEDINGS PENDING ARBITRATION, # 2 Exhibit Exhibit A - California State Athletic Commission Manager-Boxer Contract, # 3 Exhibit Exhibit B - Request for Arbitration, # 4 Proposed Order Proposed Order) (Dhungana, Rajan) (Entered: 02/05/2021)

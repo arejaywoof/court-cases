@@ -1,3 +1,0 @@
-# 2020.12.26
-
-APPLICATION of Non-Resident Attorney Eric S. Montalvo to Appear Pro Hac Vice on behalf of Defendant Ralph Heredia (Pro Hac Vice Fee - $500 Fee Paid, Receipt No. ACACDC-29726156) filed by Defendant Ralph Heredia. (Attachments: # 1 Proposed Order Proposed Order, # 2 Exhibit Certificate of Good Standing - Washington DC, # 3 Exhibit Certificate of Good Standing - Washington New Jersey, # 4 Exhibit Certificate of Good Standing - Pennsylvania) (Dhungana, Rajan) (Entered: 12/26/2020)
