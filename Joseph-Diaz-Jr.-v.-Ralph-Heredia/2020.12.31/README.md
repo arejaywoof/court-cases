@@ -1,0 +1,3 @@
+# 2020.12.31
+
+20 : **NOTICE** of Deficiency in Electronically Filed Pro Hac Vice Application 19 . The following error(s) was/were found: Incorrect event selected. Correct event is Appear Pro Hac Vice (G-64) Local Rule 83-2.1.3.3(b) Proposed order not attached. Local Rule 83-2.1.3.3(d) Certificate of Good Standing not attached for every state court listed to which the applicant has been admitted. Other error(s) with document(s): Applications/Ex Parte Applications/Motions/Petitions/Requests.. Application.. Appear Pro Hac Vice. Note: Wrong event does not provide relief or changes sought. Certificates of Good Standing have been required since 9/08. See LR 83-2.1.3.3. See Instructions for Applicants (1) (G-64). (Thrasher, Lupe) (Entered: 12/31/2020)

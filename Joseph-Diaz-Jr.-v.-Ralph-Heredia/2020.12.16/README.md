@@ -1,0 +1,5 @@
+# 2020.12.16
+
+11 : **NOTICE TO FILER OF DEFICIENCIES** in Electronically Filed Documents RE: NOTICE OF MOTION AND MOTION to Dismiss COMPLAINT 9 . The following error(s) was/were found: Proposed Document was not submitted as separate attachment. Other error(s) with document(s): Please submit a proposed order. In response to this notice, the Court may: (1) order an amended or correct document to be filed; (2) order the document stricken; or (3) take other action as the Court deems appropriate. You need not take any action in response to this notice unless and until the Court directs you to do so. (yl) (Entered: 12/16/2020)
+
+12 : **NOTICE OF CLERICAL ERROR**: Due to clerical error Re: Due to system error, the pdf document was not attached. Please refer to document number 11 . 10 (yl) (Entered: 12/16/2020)
