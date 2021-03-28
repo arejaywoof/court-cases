@@ -1,5 +1,6 @@
 ### Joseph Diaz Jr. v Ralph Heredia, John Doe Esq, Jane Doe 1-20
 
+* CASE #: 5:20-cv-02332-JWH-KK
 * Date Filed: 11/09/2020
 * Assigned to: Judge John W. Holcomb
 * Jury Demand: Defendant
