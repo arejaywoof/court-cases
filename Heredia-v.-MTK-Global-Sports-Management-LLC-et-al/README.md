@@ -1,3 +1,13 @@
+### Heredia Boxing Management, Moses Heredia v. MTK Global Sports Management, Paul D Gibson, Daniel Kinahan, Golden Boy Promotions, Inc.
+
+* CASE #: 5:20-cv-02618-JWH-KK
+* Date Filed: 12/18/2020
+* Assigned to: Judge John W. Holcomb
+* Jury Demand: Plaintiff
+* Nature of Suit: 470 Racketeer/Corrupt Organization
+* Jurisdiction: Federal Question
+* Cause: 18:1961 Racketeering (RICO) Act
+
 | Date Filed        | #           | Docket Text  |
 | ------------- |:-------------:| -----|
 | 12/18/2020  | 1 | **COMPLAINT** Receipt No: ACACDC-29610489 - Fee: $402, filed by plaintiff Moses Heredia, Heredia Boxing Management, Inc.. (Attachments: # 1 Civil Cover Sheet CV-71 Civil Cover Sheet) (Attorney Rajan Olarita Dhungana added to party Moses Heredia(pty:pla), Attorney Rajan Olarita Dhungana added to party Heredia Boxing Management, Inc.(pty:pla))(Dhungana, Rajan) (Entered: 12/18/2020) |
