@@ -1,3 +1,3 @@
 # court-cases
 
-> boxing related court filings & docket information
+> court filings & docket information that relate to boxing
