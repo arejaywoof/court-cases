@@ -16,7 +16,7 @@
 | 3 | 09/17/2020 | **Summons Issued** / Docket Text: SUMMONS Issued for *Shohjahon Ergashev* (DPer)  | 
 | 4 | 09/17/2020 | **Summons Issued** / Docket Text: SUMMONS Issued for *Oleg Bogdanov* (DPer)  |
 | 5 | 09/17/2020 | **Notice of Appearance** / Docket Text: NOTICE of Appearance by Jason R. Canvasser on behalf of Salita Promotions Corp.. (Canvasser, Jason) |
-| 6 | 09/18/2020 | Statement of Disclosure of Corporate Affiliations / Docket Text: STATEMENT of DISCLOSURE of CORPORATE AFFILIATIONS and FINANCIAL INTEREST by Salita Promotions Corp. (Murphy, Charles)  |
+| 6 | 09/18/2020 | **Statement of Disclosure of Corporate Affiliations** / Docket Text: STATEMENT of DISCLOSURE of CORPORATE AFFILIATIONS and FINANCIAL INTEREST by Salita Promotions Corp. (Murphy, Charles)  |
 | 7 | 09/18/2020 | **Notice (Other)** / Docket Text: NOTICE by Salita Promotions Corp. Plaintiff's Supplemental Certification Regarding Notice (Murphy, Charles) |
 | 8 | 09/18/2020 | **Memorandum Opinion & Order** / Docket Text: OPINION and ORDER Granting in Part Ex Parte Motion for Temporary Restraining Order [2]. Signed by District Judge Laurie J. Michelson. (EKar)  |
 | 9 | 09/21/2020 | **Order** / Docket Text: ORDER Regarding Bond. Signed by District Judge Laurie J. Michelson. (EKar)  |
