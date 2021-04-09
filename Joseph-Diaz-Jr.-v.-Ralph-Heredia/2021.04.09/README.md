@@ -1,0 +1,3 @@
+## 04/09/2021
+
+41 : Opposition to Motion for Relief from Order re: NOTICE OF MOTION AND MOTION for Relief from a Judgment or Order re NOTICE OF MOTION AND MOTION to Withdraw Second NOTICE OF MOTION AND MOTION to Dismiss Case 23 NOTICE OF MOTION AND MOTION to Compel Arbitration 25 , Order o 40 filed by Plaintiff Joseph Diaz Jr.. (Attachments: # 1 Declaration of Diyari Vazquez, # 2 Exhibit A, # 3 Exhibit B, # 4 Exhibit C, # 5 Exhibit D, # 6 Exhibit E, # 7 Exhibit F, # 8 Exhibit G)(Vazquez, Diyari) (Entered: 04/09/2021)
